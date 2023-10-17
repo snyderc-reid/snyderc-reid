@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @snyderc-reid or Caleb Snyder!
-- 👀 I’m interested in learning and applying the topics covered in my graduate program. 
-- 🌱 I’m currently learning Data Analtics/Science at Appalachian State University
+- 👀 I’m interested in learning and applying myself in my highest capacity.  
+- 🌱 I’m currently learning Data Analytics at Appalachian State University
 - 📫 How to reach me
 -     (904)-343-3251
 -     snydercreid@gmail.com
